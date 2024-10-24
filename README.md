@@ -1,1 +1,1 @@
-Bài 2 - Nguyễn Văn Quyết - 20211716 - CNTT 6
+Bài 2 - Nguyễn Tiến Việt - 20211382 - DCCNTT12.10.6
